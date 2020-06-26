@@ -1,2 +1,2 @@
-# JanjuaArsh.github.io
+# Gopinadh github.io
 professional portfolio
